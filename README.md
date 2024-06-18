@@ -1,0 +1,1 @@
+# Js-thanos-snap-effect-1
